@@ -22,7 +22,7 @@ Sou movido pelo desafio de melhorar continuamente, seja na gestão de equipes ou
 🔗 **Entre em contato comigo:**
 
 - [LinkedIn](https://www.linkedin.com/in/willians-jr/)
-- 📧 **E-mail**: [Willianshaha@gmail.com](mailto:Willianshaha@gmail.com)
+- 📧 **E-mail**: [Willianssykes@icloud.com](mailto:Willianssykes@icloud.com)
 - 📱 **WhatsApp**: +55 31 99239-5699
 
 ---
@@ -51,7 +51,7 @@ I am driven by the challenge of continuous improvement, whether in team manageme
 🔗 **Contact me:**
 
 - [LinkedIn](https://www.linkedin.com/in/willians-jr/)
-- 📧 **Email**: [Willianshaha@gmail.com](mailto:Willianshaha@gmail.com)
+- 📧 **Email**: [Willianssykes@icloud.com](mailto:Willianssykes@icloud.com)
 - 📱 **WhatsApp**: +55 31 99239-5699
 
 ---
@@ -80,5 +80,5 @@ Je suis motivé par le défi d'une amélioration continue, que ce soit dans la g
 🔗 **Contactez-moi :**
 
 - [LinkedIn](https://www.linkedin.com/in/willians-jr/)
-- 📧 **Email** : [Willianshaha@gmail.com](mailto:Willianshaha@gmail.com)
+- 📧 **Email** : [Willianssykes@icloud.com](mailto:Willianssykes@icloud.com)
 - 📱 **WhatsApp** : +55 31 99239-5699
